@@ -1,7 +1,7 @@
-### Hi there 👋
+### minh nè ❤️
 
 <!--
-**minhnehihi/minhnehihi** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+**minh nè hihi/minh nè hihi** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
 
